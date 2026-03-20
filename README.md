@@ -1,3 +1,1 @@
-# Trần Hữu Trí
-
-# 2280603373
+Tran Khanh Nhi  - 2280602237
